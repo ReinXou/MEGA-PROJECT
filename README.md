@@ -10,4 +10,6 @@
 
 ![WECANTHELPFORYOU](https://user-images.githubusercontent.com/20098740/178375504-1cb2b753-79d6-483c-b34e-556c1043a3aa.gif)
 
-![THANKSCHEERSANDEN](https://user-images.githubusercontent.com/20098740/178380473-a9755011-ca5c-45cf-9ff2-1fcfce8cb052.gif)
+![FOLLOWUSPLEASE](https://user-images.githubusercontent.com/20098740/178381026-1c2ecd91-7eb5-4ace-84b5-c0d16b677cb6.gif)
+
+![THANKSCHEERSANDE](https://user-images.githubusercontent.com/20098740/178380759-cba8cee3-8a86-408d-9924-5bcf9ec17375.gif)
